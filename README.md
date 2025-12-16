@@ -1,1 +1,1 @@
-https://github.com/alperix4560-dot/ono-tebe-nado/
+https://github.com/alperix4560-dot/ono-tebe-nado
